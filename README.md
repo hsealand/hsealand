@@ -5,7 +5,7 @@ you can call me aub ^J^
 🌷 ˚⊹
 
 
-also you can int or c+h! im always freeˊ˗ i would be really happyˊᗜˋ!
+also you can int or c+h! ˊ˗ i would be really happyˊᗜˋ!
 
 
 🌷 ˚⊹
