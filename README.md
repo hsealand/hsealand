@@ -21,4 +21,4 @@ i heart sealand and prussia ok
 
 
 ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 𝄢
-https://s1llyxsq.straw.page/
+
