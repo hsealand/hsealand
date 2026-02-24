@@ -22,3 +22,5 @@ i heart sealand and prussia ok
 
 ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 𝄢
 
+
+![Image](https://github.com/user-attachments/assets/efa46af4-06f3-48ea-afcc-f2e561363a4e)
