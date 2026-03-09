@@ -1,20 +1,20 @@
 ## Heya!!
-you can call me aub ^J^
+(⸝⸝⸝ ᴗ͈ˬᴗ͈)✧        .   ݁ 
 
 
-🌷 ˚⊹
+ ✧        .   ݁ 
 
 
-also you can int or c+h! ˊ˗ i would be really happyˊᗜˋ!
+ you can 𝗶𝗻𝘁 or c+h! ˊ˗ i would be really happyˊᗜˋ!
 
 
-🌷 ˚⊹
+ ✧        .   ݁ 
 
 
 sorry if i didnt respond !! i might be afk(˵ˊᯅˋ˵) BUT feel free to sit w me !
 
 
-🌷 ˚⊹
+ ✧        .   ݁ 
 
 
 i heart sealand and prussia ok
