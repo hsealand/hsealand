@@ -1,26 +1,12 @@
-## Heya!!
-(⸝⸝⸝ ᴗ͈ˬᴗ͈)✧        .   ݁ 
+![Image](https://github.com/user-attachments/assets/c77e87e7-6641-41cd-9ffb-f02c39a4170b)
 
 
  ✧        .   ݁ 
 
 
- you can 𝗶𝗻𝘁 or c+h! ˊ˗ i would be really happyˊᗜˋ!
-
-
- ✧        .   ݁ 
-
-
-sorry if i didnt respond !! i might be afk(˵ˊᯅˋ˵) BUT feel free to sit w me !
-
-
- ✧        .   ݁ 
-
-
-i heart sealand and prussia ok
-
+ 
 
 ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 𝄢
 
 
-![Image](https://github.com/user-attachments/assets/efa46af4-06f3-48ea-afcc-f2e561363a4e)
+
