@@ -9,4 +9,4 @@
 ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 𝄢
 
 
-https://s1llyxsq.straw.page/
+[**strawpage**](https://s1llyxsq.straw.page/)
