@@ -9,4 +9,4 @@
 ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 𝄢
 
 
-[**strawpage**](https://s1llyxsq.straw.page/)
+[**strawpage**](https://otaniscool.straw.page))
