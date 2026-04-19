@@ -1,10 +1,9 @@
-<img width="500" height="211" alt="Image" src="https://github.com/user-attachments/assets/e327f8e5-9abf-4488-8b51-abca7577915a" />
+<img width="370" height="296" alt="Image" src="https://github.com/user-attachments/assets/65046460-06f7-4c6d-bc7e-fd2404f9f389" />
 
 
  ✧        .   ݁ 
 
 
- <img width="540" height="228" alt="Image" src="https://github.com/user-attachments/assets/f25273d5-bfbb-43e1-9b27-3c0ee518e323" />
 
 ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 𝄢
 
