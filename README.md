@@ -8,4 +8,4 @@
 ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 𝄢
 
 
-[**strawpage**](https://otaniscool.straw.page)
+[**strawpage**](https://otaniscool.straw.page)      ☘️      [**ata**](https://otaniscool.atabook.org)
